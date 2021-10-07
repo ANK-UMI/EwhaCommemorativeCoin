@@ -1,1 +1,1 @@
-# ideal-pancake
+# EwhaCommemorativeCoin(ECC)
